@@ -1,2 +1,0 @@
-# sixthextinction.github.io
-website
